@@ -1,0 +1,11 @@
+## summary
+
+The Chinese title (translated as “Flying over the Hospice”) pays obvious tribute to Milos Forman’s *One Flew Over the Cuckoo's Nest*, but instead of following the dark theme of Forman's classic, Zhang has managed to produce a bittersweet family drama. This is a movie that could be easily renamed “No home for old men”. It is both a comedy-drama and a road movie that sees old people as actively seeking to escape from the place and the role that society has imposed on them and draws our attention to the condition of old people and the progressive undermining of traditional family values in contemporary China. The message is about people's ability to realise their dreams at any age, and to prove, as one character says, that there comes a time in parents' lives when they have to think of themselves for once, after a lifetime of self-sacrifice for their children.
+
+## synopsis
+
+The Guanshan Nursing Home in northern China is full of sad stories. All the elderly residents either have no living relations or have been abandoned by their children for various reasons. Some are weak and senile, simply waiting to die, but others are finding interesting things to do in old age. Despite the fact that all the residents receive adequate care, none of them see the nursing home as their real home and none are able to leave. Old Ge (Xu Huanshan), a retired bus driver, is forced to leave his home when his second wife dies and must squeeze into a room at the nursing home his old friend Zhou. 
+
+Old Zhou (Wu Tianming) would like to be reunited with his daughter, with whom he lost contact many years ago. The only information he has is that she has moved to Japan, so he plans to appear on Japanese television hoping that she will see him. He recruits some of his fellow residents in the home to perform a comic sketch and enter ‘Super Skit’, a Japanese TV talent competition.
+
+During rehearsals, two of the group are slightly injured, and the head nurse forbids them to take part in the competition unless all their families agree. However, their families unanimously refuse their consent, prompting the elderly performers to escape from the home, and make a cross-country trek in an ancient bus rescued from the scrapyard to participate in the local round of the competition being held in Tianjin.
